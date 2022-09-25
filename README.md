@@ -1,5 +1,7 @@
 ### Hi there 👋
 Ive completed he course!
+Im studying in Iba as a student of BSCS and have recently started my own brand fitwear pk on instagram. I graphic design logos and banners for clients and love to program.
+I love going to the gym and working out in general!
 <!--
 **omarashrafkhan/omarashrafkhan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
